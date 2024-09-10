@@ -1,0 +1,1 @@
+Curious about computers and programming for over a decade.
